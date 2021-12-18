@@ -26,4 +26,4 @@ the application we created to submit the Hamoud Boualem challenge in JunctionX A
 => Home Page
 
 
-Now it contains all the screen, thanks for your love and support 🙏 
+viva Hamoud 🙏 
